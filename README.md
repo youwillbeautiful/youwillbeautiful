@@ -1,78 +1,47 @@
-## " EXORCISM - Creep-P !! ^_^ " ꒷꒦꒷꒦꒷꒦
-
-![](https://komarev.com/ghpvc/?username=IamNotStarLOLXD&color=d71e1e)
-
+## " you will beautiful. " ꒷꒦꒷꒦꒷꒦
+<p align="center"><img src="https://github.com/youwillbeautiful/youwillbeautiful/blob/main/spin.gif?raw=true" width="99" /> <img src="https://github.com/youwillbeautiful/youwillbeautiful/blob/main/bonandsha.png?raw=true" width="99" /> <img src="https://github.com/youwillbeautiful/youwillbeautiful/blob/main/bonlooking.gif?raw=true" width="99" />
 <p align="center">
-Greetings. I am Duzt.<br>  
-  </p>
-
-<p align="center">
- <img width="736" height="736" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/Untitled515_20260616123448.png?raw=true">
+  <img src="https://komarev.com/ghpvc/?username=iamnotstarlolxd" alt="visitors" />
 </p>
+<img width="2048" height="177" src="https://github.com/youwillbeautiful/youwillbeautiful/blob/main/tumblr_a405022161c153787b3c1055ac732a91_a0b7ab73_2048.png?raw=true"> 
+
+hi there! you can call me duzt! you can also call me by other [names](https://en.pronouns.page/@X_X_Star_X_X) ^_^<br>
+i might follow u if i think ur c00lz! 👀<br>
+u can check out my strawpage if u want! ^_^<br>
+
+this page is still a little wip
 
 
+# ꒦꒷꒦꒷ ABOUT ME <img width="38" height="35.25" src="https://github.com/youwillbeautiful/youwillbeautiful/blob/main/2026_08_20_0m1_Kleki.png?raw=true"> 
 
-<p align="center">
- <img width="1080" height="70" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/tumblr_feb591b9b715999e6487939cb6b3beba_67e67dbf_1280.png?raw=true">
-</p>
+› I go by any pronouns!<br>
+› my birthday's on November 10th, I'm a minor.<br>
+› I'm an artist! ^_^<br>
+› PDT timezone
 
-<p align="center">
-HELLO! WELCOME TO MY GITHUB PROFILE!  ̤̮<br>
-  PLEASE HAVE A LOOK AROUND!<br>
-  AND PLS PLS PLS CHECK MY STRAWPAGE IF U CAN ^_^<br>
-  I MIGHT FOLLOW U IF I THINK UR C00L LWK.,.,.,.,. 👀
-</p>
+# ꒦꒷꒦꒷ DNI <img width="38" height="35.25" src="https://github.com/youwillbeautiful/youwillbeautiful/blob/main/2026_08_20_0m1_Kleki.png?raw=true"> 
 
-# <img width="35" height="35" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/pngtree-bulbous-buttercup-flower-png-image_10118468.png?raw=true"> ꒦꒷꒦꒷꒦꒷꒦꒷ ABOUT ME ꒷꒦꒷꒦꒷꒦꒷꒦ <img width="35" height="35" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/pngtree-bulbous-buttercup-flower-png-image_10118468.png?raw=true">
+› [basic dni crit.](https://dni-criteria.carrd.co/)<br>
+› nsfw acc/artist<br>
+› dsmp fan<br>
+› fetish acc/artist/follows fetish accs<br>
+› toxic shippers<br>
+› more in [carrd](https://starriss.carrd.co/#dnibyi)
 
-⟡ Names Duzt(Duzty)<br>
-⟡ I go by any pronouns, I wouldn't mind. ^_^<br>
-⟡ My bday is on November 10th, keep inmind I'm a Minor. (15)<br>
-⟡ I'm an artist!!<br>
+# ꒦꒷꒦꒷ INTERESTS <img width="38" height="35.25" src="https://github.com/youwillbeautiful/youwillbeautiful/blob/main/2026_08_20_0m1_Kleki.png?raw=true"> 
 
-# <img width="35" height="35" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/pngtree-bulbous-buttercup-flower-png-image_10118468.png?raw=true"> ꒦꒷꒦꒷꒦꒷꒦꒷ DNI ꒷꒦꒷꒦꒷꒦꒷꒦ <img width="35" height="35" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/pngtree-bulbous-buttercup-flower-png-image_10118468.png?raw=true">
+› Animal Crossing<br>
+› Bendy And the Ink Machine<br>
+› Cookie Run<br>
+› FNaF/DSaF<br>
+› Dandy's World<br>
+› Forsaken<br>
+› Regretevator<br>
+› Walten Files<br>
+› more in [carrd](https://starriss.carrd.co/#interests)
 
-⟡ Basic DNI crit, don't int wit me if ur homophobic, racist, ableist, ect.<br>
-⟡ nsfw artists<br>
-⟡ Associated with NFTS/NFT Account<br>
-⟡ Fetish Account/Artist<br>
-⟡ More in [strawpage](https://duztystarz.straw.page/)<br>
+# ꒦꒷꒦꒷ OTHER STUFF <img width="38" height="35.25" src="https://github.com/youwillbeautiful/youwillbeautiful/blob/main/2026_08_20_0m1_Kleki.png?raw=true"> 
 
-⟡ anyone under 13 or above 18 iwc<br>
-
-
-# <img width="35" height="35" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/pngtree-bulbous-buttercup-flower-png-image_10118468.png?raw=true"> ꒦꒷꒦꒷꒦꒷꒦꒷ INTERESTS ꒷꒦꒷꒦꒷꒦꒷꒦ <img width="35" height="35" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/pngtree-bulbous-buttercup-flower-png-image_10118468.png?raw=true">
-
-
-⟡ UNDERTALE/DELTARUNE ⭐<br>
-⟡ DANDY'S WORLD ⭐<br>
-⟡ DREAM GAME ⭐<br>
-⟡ FNAF/DSAF ⭐<br>
-⟡ KIRBY ⭐<br>
-⟡ MLP ⭐<br>
-
-⟡ ACNH<br>
-⟡ BATIM<br>
-⟡ DDLC<br>
-⟡ VOCALOID/UTAULOID/SYNTHV<br>
-⟡ More in [Carrd](https://starriss.carrd.co/)
-
-# <img width="35" height="35" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/pngtree-bulbous-buttercup-flower-png-image_10118468.png?raw=true"> ꒦꒷꒦꒷꒦꒷꒦꒷ BYI ꒷꒦꒷꒦꒷꒦꒷꒦ <img width="35" height="35" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/pngtree-bulbous-buttercup-flower-png-image_10118468.png?raw=true">
-
-⟡ I'M A MINOR<br>
-⟡ I'm not that good at socializing sometimes<br>
-⟡ Sometimes shy af<br>
-⟡ Usually prefers you to ask to friend me on discord<br>
-⟡ Sometimes responds late<br>
-⟡ Don't invite me to any parties in PonyTown, I'm already in one.<br>
-⟡ IM FINE WITH C+H I JUST WONT TALK/MOSTLY WILL BE AFK/IN MENU ^_^
-
-# <img width="35" height="35" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/pngtree-bulbous-buttercup-flower-png-image_10118468.png?raw=true"> ꒦꒷꒦꒷꒦꒷꒦꒷ WHERE 2 FIND ME ꒷꒦꒷꒦꒷꒦꒷꒦ <img width="35" height="35" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/pngtree-bulbous-buttercup-flower-png-image_10118468.png?raw=true">
-
-⟡ [PonyTown](https://pony.town/)<br>
-⟡ [Scratch](https://scratch.mit.edu/users/X_X_Star_X_X/)<br>
-⟡ [Twitter NOT X](https://x.com/DuztyStarz)<br>
-⟡ [Funkipedia (FNF MOD WIKI)](https://fridaynightfunking.fandom.com/wiki/User:DuztyStarz)<br>
-⟡ [ROBLOX](https://www.roblox.com/users/1591789785/profile)<br>
-⟡ [YOUTUBE](https://www.youtube.com/@DuztyStarz)<br>
-⟡ MORE IN [RESITE](https://resite.link/Starru)
+› i play ponytown. yah.<br>
+› i really like veeronica and bon, they're so me.<br>
+› heres my [resite](https://resite.link/starru) idk

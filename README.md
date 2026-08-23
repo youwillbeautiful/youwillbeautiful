@@ -42,6 +42,8 @@ this page is still a little wip
 
 # ꒦꒷꒦꒷ OTHER STUFF <img width="38" height="35.25" src="https://github.com/youwillbeautiful/youwillbeautiful/blob/main/2026_08_20_0m1_Kleki.png?raw=true"> 
 
+<p align="center"><img src="https://github.com/youwillbeautiful/youwillbeautiful/blob/main/pony-town-@%20-%20VEE%20!%20%F0%9F%8E%B5%20_4SKN_%20-%20me%20irl-dance-1-a-blinking-padded-4x.gif?raw=true" width="104" /> <img src="https://github.com/youwillbeautiful/youwillbeautiful/blob/main/pony-town-me%20core%20-%20walten%20files-dance-sit-blinking-padded-ponyplush-4x.gif?raw=true" width="84" />
+
 › i play ponytown. yah.<br>
-› i really like veeronica and bon, they're so me.<br>
+› i really like veeronica and bon, they're so me. <br>
 › heres my [resite](https://resite.link/starru) idk
